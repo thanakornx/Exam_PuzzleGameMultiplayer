@@ -2,7 +2,7 @@
 
 ไฟล์ทั้งหมด https://drive.google.com/drive/folders/1fBbOfyWo1fh86Y6YL9gDOQHTZI2m59fO?usp=drive_link
 
-ตัวเกม https://drive.google.com/file/d/1xsuAUHP1oQ6V_lv07ilXRTLni3fpO-ez/view?usp=sharing
+ตัวเกม https://drive.google.com/file/d/1Q4DVoc7BE4HiShRTOf51d0zAcILA7Gmv/view?usp=drive_link
 
 o ชื่อเกม Puzzle-co-op
 
