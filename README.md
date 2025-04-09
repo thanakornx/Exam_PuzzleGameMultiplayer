@@ -16,3 +16,9 @@ o ปัญหาที่พบ และวิธีการแก้ไข �
 
 
 ![puzzle](https://github.com/user-attachments/assets/23e1ab33-f923-4953-933d-096f7b7a571e)
+
+![puzzle2](https://github.com/user-attachments/assets/1911300f-c621-4ff4-b2d2-f9238a4a0daf)
+
+![puzzle3](https://github.com/user-attachments/assets/fb71a03e-23fd-46fe-a72c-569c7b52480d)
+
+![puzzle4](https://github.com/user-attachments/assets/1395c5ad-4bf6-461c-802f-b3a5ebaafe26)
